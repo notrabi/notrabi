@@ -48,7 +48,7 @@ discord: @bad.at.mania or @1m_cr4zy
 i don't (really) use social media, so i don't have any other links.
 
 ## my favourite colour
-#9999ff
+#99ccff
 
 <hr>
 
