@@ -43,7 +43,7 @@ roblox: [@i2_cr4zy](https://www.roblox.com/users/1135112848/profile)
 <br>
 osu: [i2_cr4zy](https://osu.ppy.sh/users/34873906)
 <br>
-discord: @im.kit or @bad.at.4k
+discord: @bad.at.mania or @1m_cr4zy
 
 i don't (really) use social media, so i don't have any other links.
 
