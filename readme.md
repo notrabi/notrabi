@@ -14,7 +14,7 @@ what else... i'm a [dyspraxic](https://www.nhs.uk/conditions/developmental-coord
 
 i once took over from my teacher in year 4 (grade 3) to teach html cause she didn't know how to.
 <br>
-i got gcse grade 9 in year 7 (grade 6) for computer science because i fucked around in scratch. dunno how.
+i got gcse grade 5 in year 7 (grade 6) for computer science because i fucked around in scratch. dunno how.
 
 ## what do i do?
 i program. *shocker*.
