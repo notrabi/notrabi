@@ -48,9 +48,7 @@ discord: @bad.at.mania or @1m_cr4zy
 i don't (really) use social media, so i don't have any other links.
 
 ## my favourite colour
-<font color="MediumSlateBlue"> this colour i found is pretty close. it's called medium slate blue.</font>
-<br>
-<font color="MediumSlateBlue"> but no. my favourtie colour is infact </font><font color="#9999ff">this colour (#9999ff).</font>
+#9999ff
 
 <hr>
 
