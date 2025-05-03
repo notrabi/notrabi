@@ -10,7 +10,7 @@ i dunno what to write here, so enjoy reading something probably chaotic.
 ## who am i?
 i'm kit, and i am a sad excuse for a human being.
 <br>
-what else... i'm a [dyspraxic](https://www.nhs.uk/conditions/developmental-coordination-disorder-dyspraxia/) 14yo student.
+what else... i'm a [dyspraxic](https://www.nhs.uk/conditions/developmental-coordination-disorder-dyspraxia/) 15yo student.
 
 i once took over from my teacher in year 4 (grade 3) to teach html cause she didn't know how to.
 <br>
